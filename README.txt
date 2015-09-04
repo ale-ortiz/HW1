@@ -1,1 +1,0 @@
-Alejandro Murguia-Ortiz
